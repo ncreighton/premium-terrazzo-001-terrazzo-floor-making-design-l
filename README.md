@@ -1,0 +1,2 @@
+# premium-terrazzo-001-terrazzo-floor-making-design-l
+Professional terrazzo-floor-making Notion template — without the professional price tag.  Pre-built databases, views, and formula fields — ready to duplicate and use. Fully documented: every section explained so you know exactly what to customize.  ## What's Included  - Terrazzo Floor Making Design Log — fully configured and ready to use - Pre-buil
